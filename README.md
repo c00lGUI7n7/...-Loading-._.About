@@ -34,3 +34,4 @@
 ⠀ ⠀ ⠀ ⠀ ⠀Straw soon.
 َ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀━ ✦ “you know i would die for you, right?” ✦ ━━
+<img width="720" height="196" alt="1000045901" src="https://github.com/user-attachments/assets/6ab439d7-5cb2-4864-b16c-a7f74d70c184" />
