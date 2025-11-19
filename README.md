@@ -1,4 +1,4 @@
-# ...-Loading-._.About
+c00lGUI7n7
 ⠀ ⠀ ⠀ ⠀ ⠀Heres info abt me, more will appear on my strawpage.
 َ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀﹌﹌﹌﹌﹌﹌꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂﹌﹌﹌﹌﹌﹌
